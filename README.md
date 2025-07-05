@@ -24,7 +24,6 @@ Still trying to understand the world — but now I do it with code.
 - 🎥 Old movies > new movies. Fight me.
 - 🛍️ Shopping? Yes. Because **I’m just a girl** 🎶
 - 🧠 My secret weapon? **Social anxiety is scared of me.**
-- 😎 Social anxiety retired early — I took its job.
 - 💬 In a long-term relationship with **ChatGPT Plus**
 - 🧘‍♀️ Solving bugs is my kind of meditation.
 
