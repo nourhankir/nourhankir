@@ -1,4 +1,4 @@
-# ✨ Ya Hala! I’m Nour
+# ✨ Marhaba! I’m Nour
 
 🧠 AI & Machine Learning Engineer | 🧩 Software Developer | 🎲 Board Game Strategist  
 Still trying to understand the world — but now I do it with code.
